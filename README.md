@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YashGupta415
+- 👀 I’m interested in a lot of things.
+- 🌱 I’m currently learning python, linux, sketching, how to live life.
+- 💞️ I’m looking to collaborate on nothing for now.
+- 📫 How to reach me email : wthbhuka@gmail.com
